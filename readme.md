@@ -1,1 +1,1 @@
-buddhism.ru KANGYUR
+buddhism.ru pedurma KANGYUR
